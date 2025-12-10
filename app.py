@@ -1,7 +1,5 @@
 
 
 halo edwin
-halo
 
-
-fairuz
+for edwin ediwn ediwn ediwn. fairuz hanif
