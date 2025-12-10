@@ -2,8 +2,4 @@
 
 halo edwin
 
-ica
-halo
-
-
-fairuz
+for edwin ediwn ediwn ediwn. fairuz riuiizi
